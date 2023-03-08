@@ -1,0 +1,6 @@
+- Pre-heat oven to 350 degrees
+- clean potatoes
+- poke a bunnch of holes in the potato with the fork (3 punctures per side)
+- toss in olive oil and salt (dont put to much oil on! and use a drip pan🙂)
+- straight into the oven (no pan or baking sheet)
+- aim for sweet spot of 205 - 2012 degrees
